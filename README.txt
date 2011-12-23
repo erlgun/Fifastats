@@ -1,1 +1,1 @@
-Her kommer det info om åssen programmet er bygd opp.
+Her kommer det info om åssen programmet er bygd opp
